@@ -1,4 +1,4 @@
-### On Running Away  
+### On Running Away, from "The Edge of Awareness"    
 
 Ralph and I considered the possibility of police pursuit.  We briefly debated the advisability of disguises.  We decided that the wisest course was to try to postpone pursuit.  To that end, we would tell our parents that we had each been invited by the other boy's family to spend the summer in Michigan.  We made our secret plans, and one afternoon, shortly after high-school graduation, we uttered our little lies and headed for the railroad yards.  That evening, while our families were no doubt discovering that neither owned a summer camp in Michigan, we were already far from our comfortable New Jersey suburb, rattling west across America.  Our object was to get to China to join the American Volunteer in its aerial combat against the Japanese.
 
