@@ -1,4 +1,4 @@
-### On Running Away - John Keats
+### On Running Away  
 
 Ralph and I considered the possibility of police pursuit.  We briefly debated the advisability of disguises.  We decided that the wisest course was to try to postpone pursuit.  To that end, we would tell our parents that we had each been invited by the other boy's family to spend the summer in Michigan.  We made our secret plans, and one afternoon, shortly after high-school graduation, we uttered our little lies and headed for the railroad yards.  That evening, while our families were no doubt discovering that neither owned a summer camp in Michigan, we were already far from our comfortable New Jersey suburb, rattling west across America.  Our object was to get to China to join the American Volunteer in its aerial combat against the Japanese.
 
@@ -34,13 +34,13 @@ The meals donated by housewives were occasional banquets, but as the train rolle
 
 In the high Rockies, two boys boarded our train.  They were Louis Wang, a Chinese-American of Fresno, and Phillip Benoff, a Russian-American from Los Angeles.  They had gone adventuring to the East Coast and now were returning to California: Phil to join the Army and Louis to join a gambling house where he would run a dice table.  We told them of our plans, and they decided to come along with us instead.  In that moment we became an army, and the world brightened considerably.  Changed by the alchemy of a dream, the mountains' vast sterility was transformed into magnificence.  We would sort the facts of life to suit ourselves.  Crossing the Pacific would be no problem.  Everyone knew that boys could get jobs as wipers to work a passage.  Boys had been running away to sea for centuries.  We had only to find a ship that needed four wipers.
 
-Before it was over, we must have walked the docks of every port of the West Coast -- including those of minor fishing towns. "Were we members of the Union?"  No. "Let's see your identification papers."  We had none.
+Before it was over, we must have walked the docks of every port of the West Coast -- including those of minor fishing towns. *"Were we members of the Union?"*  No. *"Let's see your identification papers."*  We had none.
 
-"Do you have passports?"  Passports?
+*"Do you have passports?"*  Passports?
 
-We went to the union offices.  "Buddy, we've got 3,000 guys on the bench, and every single one of them is an Able Seaman."
+We went to the union offices.  *"Buddy, we've got 3,000 guys on the bench, and every single one of them is an Able Seaman."*
 
-Ralph and I, blue-eyed and blond, went to the Scandinavian shipping companies, saying, "Ay an Swade.  Ay yust want ship home."  And they laughed and said they were sorry.
+Ralph and I, blue-eyed and blond, went to the Scandinavian shipping companies, saying, *"Ay an Swade.  Ay yust want ship home."*  And they laughed and said they were sorry.
 
 We persisted until someone finally told us the truth about the American Volunteer Group.  It seemed that the volunteers had been carefully selected by the United States government from its ranks of Army, Navy, and Marine Corps pilots.  We went to the recruiting offices, only to be told that we would need at least two years of college credits to qualify for the aviation-cadet programs.  At this point, we all went to Fresno with Louis to think things over.
 
@@ -77,3 +77,6 @@ Nagging at my mind is Churchill’s remark that “without a measureless and per
 That is why I applaud the youthful dramatis, the would-be adventurer, who breaks the pattern, who with mounting excitement writes the farewell note and slips out the window at dead of night to set off afoot for the railroad yards to board a freight bound for California.  I believe I know how he feels.  More important, I know that he is not running away from something so much as he is running toward something: toward life; toward himself; toward an end that cannot be known.
 
 I wish him well.  His chances of finding what he seeks are never good, but they are at least better than the chances of those who stay at home, placidly accepting the patterns they never made, or choose.  
+
+#### -John Keats, 1965
+
